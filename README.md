@@ -1,3 +1,3 @@
 # odin-recipes
 bisilerdeniom
-merabalar ilk site yapma girismesi 33 yasim var reeal ıhm öhm anyway guys see u later
+It is troll . But i want to save this here for my future self.
